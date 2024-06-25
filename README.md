@@ -1,0 +1,4 @@
+- a duper for the game murder mystery 2
+- for help join https://discord.gg/robloxduping
+- make sure to turn anti virus off
+- video tutorial is on the discord
